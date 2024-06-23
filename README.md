@@ -1,2 +1,2 @@
-# 20th-June
+# 19th-June
 Yahoo Finance - Study of JPMorgan Chase
